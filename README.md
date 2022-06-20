@@ -1,1 +1,1 @@
-I personal website under construction
+My personal website under construction
